@@ -12,9 +12,9 @@ Don't forget a heaping plateful of dates and trauma bonding!
 From water magic nymphs to astral magic elves,
 You'll be hunting down all sorts of dateable archetypes!
 
-Cool chicks, certified thunks, bubbly girls, you name it!
-There's someone for everyone, here!
+Cool chicks, kissable thunks, bubbly girls, you name it!
+There's someone for everyone here!
 (unless there isn't.)
 
 
-Get ready, mage-simps, for the dungeon dive of a lifetime!!
+Get ready, mage-simps, for the dungeon dive of a lifetime!
